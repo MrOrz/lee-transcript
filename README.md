@@ -6,6 +6,8 @@
 
 我們相信忠實呈現逐字稿與截圖（尤其是各種被提出的「事證」），是進行深入討論的基石。
 
+**[開始閱讀](https://mrorz.gitbooks.io/lee-transcript/)**
+
 ## 相關連結
 
 * [g0v hackath26n | 台灣零時政府五週年黑客松](https://g0v-jothon.kktix.cc/events/g0v-hackath26n)
