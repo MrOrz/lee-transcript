@@ -4,12 +4,8 @@
 > 相關素材
 > * [官方微博影片](https://www.weibo.com/3960688335/FlkyLic4u?from=page_1001063960688335_profile&wvr=6&mod=weibotime)
 > * [網友 Youtube 備份](https://www.youtube.com/watch?v=voRswfetP9Q&index=24&list=PLiYVWrSWkXAZM-kYJs1XOst3ZgC8U7OVD)
-
-:::info
-**逐字稿完成度**
-
-本份無速錄，採聽打完成。
-:::
+>
+> 本份無速錄，採聽打完成。
 
 審判長：
 現在由被告人做最後陳述。被告彭宇華，現在由你做最後陳述。
